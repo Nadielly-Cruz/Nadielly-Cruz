@@ -1,4 +1,4 @@
-## Olá, sou Nadielly Cruz 👋
+## Olá, sou Nadielly Cruz ⋆༺𓆩☠︎︎𓆪༻⋆
 
 - 🔭 Sou estudante do Instituto Federal em Paraíso do Tocantins.
 - 🌱 Atualmente estou cursando Tecnologia da Informação.
